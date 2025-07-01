@@ -1,16 +1,15 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**I-Hit-People/i-hit-people** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Yo Call me Soldier or Pom 
 
-Here are some ideas to get you started:
+SD Overseer on SSRP
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ![](https://komarev.com/ghpvc/?username=devimccallion&label=da+brochachos&color=445569)
+
+  ![unnamed](https://files.catbox.moe/5805nu.png)
+
+   [click for funny site ;) Trust me bro...](https://natribu.org/en/)
+
+   [Wanna send me things?](https://soldier4.straw.page/)
+   
+  </div>
