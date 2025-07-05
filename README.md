@@ -9,6 +9,6 @@ SD Overseer on SSRP
 
    [click for funny site ;) Trust me bro...](https://natribu.org/en/)
 
-   [Wanna send me things?](https://soldier4.straw.page/)
+   [Checkout my sick ass Rentry](https://rentry.co/michaelcaboose)
    
   </div>
